@@ -1,4 +1,4 @@
-# 
+# secret Script for math for brainrots is the best math for brainrots Script, featuring esp and teleport. Safe and powerful for all your needs.
 
 
 
